@@ -32,7 +32,7 @@ I'm a passionate **fresher web developer** eager to build clean and user-friendl
 ## 📫 Contact Me
 
 - Email: anshukotnala2@gmail.com
-- LinkedIn: [linkedin.com/in/yourprofile](https://linkedin.com/in/yourprofile)
+- LinkedIn: [linkedin.com/in/yourprofile](Profile | LinkedIn https://share.google/BXzwq8Xe2AGqAgdGa)
 
 
 ---
